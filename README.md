@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fjr06
-- 👀 I’m interested in Web Development And Web Programing But Iam Interest To Game Development
+- 👀 I’m interested in Web Development And Web Programing But Iam Interest To Game Development Too
 - 🌱 I’m currently learning Web Programing
 - 💞️ I’m looking to collaborate on Web Developing and Web Programing
 - 📫 How to reach me email to fajarnurmaulana18@gmail.com
